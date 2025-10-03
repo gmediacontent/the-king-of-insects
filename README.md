@@ -1,1 +1,2 @@
-# the-king-of-insects
+# The King Of Insects
+Ayant été transporté dans un autre monde, Jiang Chen a réveillé le pouvoir de Domination des Insectes ! Les petits insectes peuvent évoluer, attaquer et extraire des talents ! Plus important encore, ils peuvent engendrer des catastrophes naturelles invincibles !
